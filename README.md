@@ -3,7 +3,7 @@
 
 
 # 💫 About Me:
-17-year-old coding enthusiast<br>Passionate about personal projects<br>
+17-year-old coding enthusiast<br>Passionate about personal projects<br>Have any questions or project requests? <br> Let me on on [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.com/users/1016412324816502835) 
 
 
 ## 🌐 Socials:
